@@ -1,0 +1,1 @@
+# Concorrente--Fatias-Horizontal-Vertical
